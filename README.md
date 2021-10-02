@@ -1,5 +1,6 @@
-### Hi there 👋
+### Hi there 👋 Krushna here.
 
+- ⚡ Fun fact : I watch Motu Patlu & Oggy Cockroaches during the exam time.
 <!--
 **KrushnaPrasadSahoo77/KrushnaPrasadSahoo77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
