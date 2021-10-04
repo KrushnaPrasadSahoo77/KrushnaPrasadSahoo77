@@ -1,4 +1,4 @@
-### Hi there 👋 Krushna here.
+### Hi there, Krushna here.
 
 - ⚡ Fun fact : I watch Motu Patlu & Oggy Cockroaches during the exam time.
 <!--
